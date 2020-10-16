@@ -1,4 +1,3 @@
-# masteruah
 
 # Compañeros de clase:
 
